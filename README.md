@@ -60,5 +60,171 @@
 ![screen_1532092705949](https://user-images.githubusercontent.com/40857994/92113647-f7b79300-ee32-11ea-8d68-941f3733b470.jpg)
 -----------
 ### 13) СКУЧНЫЙ МИР, В КОТОРОМ НЕ СУЩЕСТВУЕТ САМОЙ КОНЦЕПЦИИ ПОХАБНЫХ ШУТОК / SHIMONETA TO IU GAINEN GA SONZAI SHINAI TAIKUTSU NA SEKAI
-
+![3ebcc8122768436e80a4dfd267458f64ad7cf89br1-1366-767v2_uhq](https://user-images.githubusercontent.com/40857994/92183135-d1284500-ee90-11ea-9288-1d1bdb7cd271.jpg)
+![UniqueWideLiger-poster](https://user-images.githubusercontent.com/40857994/92183157-e0a78e00-ee90-11ea-9558-adf91ee11dc0.jpg)
+![21f2c283db26ef45243216ff7a812328](https://user-images.githubusercontent.com/40857994/92183236-219fa280-ee91-11ea-83fb-18497dd08670.jpg)
+-----------
+### 14) ПОВСЕДНЕВНАЯ ЖИЗНЬ С ДЕВУШКАМИ МОНСТРАМИ / MONSTER MUSUME NO IRU NICHIJOU
+![a604c91183a39ba91de178a4ac03b2cb](https://user-images.githubusercontent.com/40857994/92183345-75aa8700-ee91-11ea-90a1-a6d3e60efe57.jpg)
+![1571946818_povsednevnaja-zhizn-s-devushkoj-monstrom-anime-28](https://user-images.githubusercontent.com/40857994/92183465-dd60d200-ee91-11ea-8571-7dfd334ea27e.jpg)
+![1571946835_povsednevnaja-zhizn-s-devushkoj-monstrom-anime-87](https://user-images.githubusercontent.com/40857994/92183481-e8b3fd80-ee91-11ea-82f3-b2425b07a4d5.jpg)
+-----------
+### 15) В ПОДЗЕМЕЛЬЕ Я ПОЙДУ, ТАМ КРАСАВИЦУ НАЙДУ / DUNGEON NI DEAI O MOTOMERU NO WA MACHIGATTE IRU DAROUKA
+![196898-Dungeon_ni_Deai_wo_Motomeru_no_ha_Machigatteiru_Darou_ka-Hestia-Bell_Cranel-anime-anime_girls-fire](https://user-images.githubusercontent.com/40857994/92183556-1f8a1380-ee92-11ea-9b32-816c8b3d3d4a.jpg)
+![Z72cyWZezN-zkKWm6l8VGKQSviGdKtojYYXS6e-vYpQ](https://user-images.githubusercontent.com/40857994/92183585-33ce1080-ee92-11ea-8ecb-257c8081b44a.jpg)
+![_](https://user-images.githubusercontent.com/40857994/92183747-9aebc500-ee92-11ea-8224-d386703c2a3d.jpg)
+-----------
+### 16) ПОСЛЕДНИЙ СЕРАФИМ / OWARI NO SERAPH
+![2816620a0e374e459_0](https://user-images.githubusercontent.com/40857994/92183784-bb1b8400-ee92-11ea-8c35-0b0146869439.jpg)
+![f9c29bfffb06f661a8fd42dc323916ec](https://user-images.githubusercontent.com/40857994/92183793-c5d61900-ee92-11ea-82c3-cc985e8e5156.jpg)
+![1582044682_p-poslednii-serafim-owari-no-seraph-anime-26](https://user-images.githubusercontent.com/40857994/92183816-d38b9e80-ee92-11ea-9276-e3650cdee8d0.jpg)
+-----------
+### 17) ДОРОГА ЮНОСТИ / AO HARU RIDE
+![s1200](https://user-images.githubusercontent.com/40857994/92183859-eef6a980-ee92-11ea-851e-c85d45095469.png)
+![5489546-ao-haru-ride-wallpapers](https://user-images.githubusercontent.com/40857994/92183928-18173a00-ee93-11ea-94b7-479646dcaae2.jpg)
+![ao-haru-ride-episode-2-26](https://user-images.githubusercontent.com/40857994/92184062-6fb5a580-ee93-11ea-84c1-e683f048f0e2.jpg)
+-----------
+### 18) УБИЙЦА АКАМЕ! / AKAME GA KILL!
+![AAAABY6edtPlkw5Js-Dp5NoPC2DQXGjdZnHlH_lZUAqdkxh3O0hFc_hjWqpGn5hSQ1WBdnK26XWsDI0fTA2zib3ws25K_Z0q](https://user-images.githubusercontent.com/40857994/92184113-9ecc1700-ee93-11ea-820a-ba6a98eb3c3a.jpg)
+![maxresdefault (2)](https://user-images.githubusercontent.com/40857994/92184127-abe90600-ee93-11ea-80fc-7ba671de6213.jpg)
+![coretanharian com -akame-ga-kill-02](https://user-images.githubusercontent.com/40857994/92184150-c4592080-ee93-11ea-9619-f66b3f730372.jpg)
+-----------
+### 19) ЧУДАЧЕСТВО ЛЮБВИ НЕ ПОМЕХА! / CHUUNIBYOU DEMO KOI GA SHITAI! REN
+![1516197262_thumb-1920-514137](https://user-images.githubusercontent.com/40857994/92184213-ebafed80-ee93-11ea-8ede-963b3aa49251.jpg)
+![s1200](https://user-images.githubusercontent.com/40857994/92184239-fc606380-ee93-11ea-99ec-d0a7db511768.jpg)
+![kinopoisk ru-Chuunibyou-demo-koi-ga-shitai_21-2192680](https://user-images.githubusercontent.com/40857994/92184258-084c2580-ee94-11ea-8d53-ead302197ba1.jpg)
+-----------
+### 20) ИГРА НА ВЫЖИВАНИЕ / NO GAME NO LIFE
+![anime-no-game-no-life-35446](https://user-images.githubusercontent.com/40857994/92184317-2c0f6b80-ee94-11ea-830f-db508182374d.jpg)
+![f14bea0ed4209ee8b8e5484bd3d1f5ea](https://user-images.githubusercontent.com/40857994/92184334-37629700-ee94-11ea-97de-6ad82b5b8194.jpg)
+![124fc553a3600772dec0cf5f50e48ae4](https://user-images.githubusercontent.com/40857994/92184353-4e08ee00-ee94-11ea-8e6c-e2d7906456f7.jpg)
+-----------
+### 21) ВОЛЕЙБОЛ!! / HAIKYUU!!
+![anime-volleyball-Haikyuu](https://user-images.githubusercontent.com/40857994/92184395-785aab80-ee94-11ea-84b3-b2bd91b01ec9.jpg)
+![haikyu_1100](https://user-images.githubusercontent.com/40857994/92184417-85779a80-ee94-11ea-8c74-c7117268831e.jpg)
+![466ffeb4fa478e2853f3eb2995889264](https://user-images.githubusercontent.com/40857994/92184436-90cac600-ee94-11ea-9a7e-6e1ac7dfad4f.png)
+-----------
+### 22) БАСКЕТБОЛ КУРОКО / KUROKO NO BASUKE
+![1577044700_basketbol-kuroko-2-kuroko-no-basket-2nd-season-anime-27](https://user-images.githubusercontent.com/40857994/92184496-b8ba2980-ee94-11ea-9f08-c9410d233977.jpg)
+![s1200 (1)](https://user-images.githubusercontent.com/40857994/92184558-e7380480-ee94-11ea-8c02-ff5926993999.jpg)
+-----------
+### 23) ДОБРО ПОЖАЛОВАТЬ В КЛАСС ЭЛИТЫ / YOUKOSO JITSURYOKU SHIJOU SHUGI NO KYOUSHITSU E
+![329822-2](https://user-images.githubusercontent.com/40857994/92185333-0a63b380-ee97-11ea-854e-0137d742d8fa.jpg)
+![1580551268_p-dobro-pozhalovat-v-klass-prevoskhodstva-y-42](https://user-images.githubusercontent.com/40857994/92185348-1780a280-ee97-11ea-8974-034453e46cba.jpg)
+![1580551253_p-dobro-pozhalovat-v-klass-prevoskhodstva-y-25](https://user-images.githubusercontent.com/40857994/92185375-2b2c0900-ee97-11ea-9783-7aee5461f8b6.jpg)
+-----------
+### 24) ЛЮБИМЫЙ ВО ФРАНКСЕ / DARLING IN THE FRANXX
+![893a30e3968c5291151a24373d1b34fb482f16d5r1-1920-750v2_uhq](https://user-images.githubusercontent.com/40857994/92185454-5c0c3e00-ee97-11ea-976f-d3a85eedaf08.jpg)
+![darlinginthefrankxx_45](https://user-images.githubusercontent.com/40857994/92185499-76deb280-ee97-11ea-94a7-336365d5f871.jpg)
+![maxresdefault (3)](https://user-images.githubusercontent.com/40857994/92185535-8d850980-ee97-11ea-9a7d-23373c1c3336.jpg)
+-----------
+### 25) КАК НЕ ПРИЗВАТЬ КНЯЗЯ ТЬМЫ ИЗ ДРУГОГО МИРА / ISEKAI MAOU TO SHOUKAN SHOUJO NO DOREI MAJUTSU
+![72865739-a71c7b00-3d24-11ea-803e-864315ea2e36](https://user-images.githubusercontent.com/40857994/92185654-d3da6880-ee97-11ea-8b44-396694885170.jpg)
+![72](https://user-images.githubusercontent.com/40857994/92185664-de94fd80-ee97-11ea-94c3-c5f1f368da8d.jpg)
+![Isekai-Maou-to-Shoukan-Shoujo-no-Dorei-Majutsu-12_01 23_2018 09 20_14 31 23](https://user-images.githubusercontent.com/40857994/92185690-ebb1ec80-ee97-11ea-921f-24e5cf1e9c38.jpg)
+-----------
+### 26) ВОСХОЖДЕНИЕ ГЕРОЯ ЩИТА / TATE NO YUUSHA NO NARIAGARI
+![1571942550_voshozhdenie-geroja-schita-anime-67](https://user-images.githubusercontent.com/40857994/92185783-1ef47b80-ee98-11ea-811a-78425e24ac0e.jpg)
+![wsSSaOXDKOkUCrqToPgGuvFN3CY](https://user-images.githubusercontent.com/40857994/92185808-2f0c5b00-ee98-11ea-8c88-de5e2b6eeee0.jpg)
+![5zNNWOh9SoCF6fDFd3LUtaioYZ9](https://user-images.githubusercontent.com/40857994/92185840-40556780-ee98-11ea-9c72-97b7c2cc4ca6.jpg)
+-----------
+### 27) ЛЮБОВНЫЕ ВОЙНЫ / KAGUYA-SAMA WA KOKURASETAI: TENSAI-TACHI NO REN`AI ZUNOUSEN
+![fkHpHKa8ZRvgXF3EvLfxXJwxEUD0Uw9ky_kPrNcD6QQyb04yQAMRXyfvEQlsNFjICSNXLg0T5GTqT6y2Kngn9_U26f7NNedwBXmVKpFEXm0zUd2kU-vBZjksUiAaW6pb](https://user-images.githubusercontent.com/40857994/92185906-6f6bd900-ee98-11ea-873b-8964e00adad3.jpg)
+![gospozha-kaguya-v-lyubvi-kak-n](https://user-images.githubusercontent.com/40857994/92186294-a2fb3300-ee99-11ea-88e7-8bc50c9f1c4f.jpg)
+![s1200 (2)](https://user-images.githubusercontent.com/40857994/92186301-ae4e5e80-ee99-11ea-8fd7-d8bb1c938a49.jpg)
+-----------
+### 28) ЭТОТ ГЛУПЫЙ СВИН НЕ ПОНИМАЕТ МЕЧТУ ДЕВОЧКИ-ЗАЙКИ / SEISHUN BUTA YAROU WA BUNNY GIRL SENPAI NO YUME O MINAI
+![s1200 (3)](https://user-images.githubusercontent.com/40857994/92186364-e35ab100-ee99-11ea-9f13-9b6e9f02e82d.jpg)
+![1577043943_a-4](https://user-images.githubusercontent.com/40857994/92186434-169d4000-ee9a-11ea-96bb-9b14471f884d.jpg)
+![1577044034_a-2](https://user-images.githubusercontent.com/40857994/92186451-2ae13d00-ee9a-11ea-8931-8a5ccca8c3b7.jpg)
+-----------
+### 29) РАССЕКАЮЩИЙ ДЕМОНОВ / KIMETSU NO YAIBA
+![Demon-Slayer-Kimetsu-no-Yaiba4](https://user-images.githubusercontent.com/40857994/92186484-43515780-ee9a-11ea-99ef-74bc3c8ed0a5.jpg)
+![18-2](https://user-images.githubusercontent.com/40857994/92186522-611ebc80-ee9a-11ea-9eff-7d9bcc387f76.jpg)
+![maxresdefault (4)](https://user-images.githubusercontent.com/40857994/92186547-75fb5000-ee9a-11ea-82a5-e545399b2603.jpg)
+-----------
+### 30) МЫ НЕ МОЖЕМ УЧИТЬСЯ! / BOKUTACHI WA BENKYOU GA DEKINAI
+![1582043686_p-mi-ne-mozhem-uchitsya-2-bokutachi-wa-benk-3](https://user-images.githubusercontent.com/40857994/92186580-95927880-ee9a-11ea-883a-c0c3bc214f86.jpg)
+![34992t_2x](https://user-images.githubusercontent.com/40857994/92186596-9fb47700-ee9a-11ea-882b-21f7a459ae82.jpg)
+![Bokutachi-wa-Benkyou-ga-Dekinai-2-Ep-2](https://user-images.githubusercontent.com/40857994/92186615-ae9b2980-ee9a-11ea-9b40-88308441f6e5.jpg)
+-----------
+### 31) 800 С ХВОСТИКОМ! / SEWAYAKI KITSUNE NO SENKO-SAN
+![3 mp4](https://user-images.githubusercontent.com/40857994/92186644-cb376180-ee9a-11ea-9e55-38fdc54903a2.jpg)
+![127](https://user-images.githubusercontent.com/40857994/92186655-d5596000-ee9a-11ea-9645-b6e8af3c7730.jpg)
+![D8tbxPqW4AAq2kv](https://user-images.githubusercontent.com/40857994/92186672-e1ddb880-ee9a-11ea-9365-c5301b7b3ef6.jpg)
+-----------
+### 32) ЧТО ВЫ ЗДЕСЬ ДЕЛАЕТЕ, УЧИТЕЛЬ? / NANDE KOKO NI SENSEI GA!?
+![1023852](https://user-images.githubusercontent.com/40857994/92186722-0043b400-ee9b-11ea-9324-b5d6a8395b85.jpg)
+![d805c71755e9](https://user-images.githubusercontent.com/40857994/92186737-0cc80c80-ee9b-11ea-9e11-eb9fe6654755.png)
+-----------
+### 33) КВАРТЕТ ПОПАДАНЦЕВ / ISEKAI QUARTET
+![47301-Isekai_Quartet-PC-Wallpaper](https://user-images.githubusercontent.com/40857994/92186767-2ec18f00-ee9b-11ea-847d-a822a425dfc7.jpg)
+![maxresdefault (5)](https://user-images.githubusercontent.com/40857994/92186789-3bde7e00-ee9b-11ea-8752-bfb167ba4c7e.jpg)
+![screen_1579089263254](https://user-images.githubusercontent.com/40857994/92186803-439e2280-ee9b-11ea-8c1a-cd2e74731f0a.jpg)
+-----------
+### 34) НАСКОЛЬКО ТЯЖЁЛЫЕ ГАНТЕЛИ ТЫ СМОЖЕШЬ ПОДНЯТЬ? / DUMBBELL NAN KILO MOTERU?
+![D_0LOtyUEAAt-FI](https://user-images.githubusercontent.com/40857994/92186852-67f9ff00-ee9b-11ea-8354-b98d061ecff8.jpg)
+![1582045683_p-naskolko-tyazhyolie-ganteli-ti-smozhesh-po-15](https://user-images.githubusercontent.com/40857994/92186878-7fd18300-ee9b-11ea-9dc0-bf582f62e2bc.jpg)
+-----------
+### 35) ДОКТОР СТОУН / DR. STONE
+![1577104653_doktor-stoun-dr_-stone-anime-1](https://user-images.githubusercontent.com/40857994/92186922-a68fb980-ee9b-11ea-81d8-04971d9d3a80.jpg)
+![Dr STONE - 10 - Large 32](https://user-images.githubusercontent.com/40857994/92186953-ba3b2000-ee9b-11ea-8547-1ddb819e23c5.jpg)
+![maxresdefault (6)](https://user-images.githubusercontent.com/40857994/92186964-c58e4b80-ee9b-11ea-9429-43853e830e33.jpg)
+-----------
+### 36) ПЛАМЕННАЯ БРИГАДА ПОЖАРНЫХ / ENEN NO SHOUBOUTAI
+![maxresdefault (7)](https://user-images.githubusercontent.com/40857994/92187012-e6ef3780-ee9b-11ea-8356-2b111f7d60bb.jpg)
+![plamennaya-brigada-pozharnyih-](https://user-images.githubusercontent.com/40857994/92187026-f3739000-ee9b-11ea-97d1-390c72462419.jpg)
+![maxresdefault (8)](https://user-images.githubusercontent.com/40857994/92187037-fff7e880-ee9b-11ea-8831-e4b86d7c4c57.jpg)
+-----------
+### 37) ЛОЖНЫЕ ВЫВОДЫ / KYOKOU SUIRI
+![kyokou-suiri-lozhnye-vyvody-sushchestva-fentezi-personazhi-k](https://user-images.githubusercontent.com/40857994/92187745-f4a5bc80-ee9d-11ea-8653-87305aa02cff.jpg)
+![Kyokou-Suiri-izle](https://user-images.githubusercontent.com/40857994/92187770-08512300-ee9e-11ea-9a64-5d7d6b11136d.jpg)
+-----------
+### 38) ИЗ ТЯНКИ В ТАНКИ: Я НЕ ЛЮБЛЮ БОЛЬ, ПОЭТОМУ ВЛОЖУ ВСЁ В ЗАЩИТУ / ITAI NO WA IYA NANO DE BOUGYORYOKU NI KYOKUFURI SHITAI TO OMOIMASU
+![EQjrukVU8AEFH9b](https://user-images.githubusercontent.com/40857994/92187843-38002b00-ee9e-11ea-9906-22c5ee5abadf.jpg)
+![maxresdefault (9)](https://user-images.githubusercontent.com/40857994/92187856-40586600-ee9e-11ea-8b5b-93ebc9792ded.jpg)
+![zSbRlPOcteeSbs0fbiL5WC6ng7f](https://user-images.githubusercontent.com/40857994/92187867-4a7a6480-ee9e-11ea-9ce3-a7052fc126b8.jpg)
+-----------
+### 39) ТУАЛЕТНЫЙ МАЛЬЧИК ХАНАКО / JIBAKU SHOUNEN HANAKO-KUN
+![legulso298h0xpqwq2y1k9bszxo](https://user-images.githubusercontent.com/40857994/92187901-654cd900-ee9e-11ea-913b-3dacad735041.jpg)
+![25](https://user-images.githubusercontent.com/40857994/92187911-6da51400-ee9e-11ea-89ba-45231621a8a1.jpg)
+![__3](https://user-images.githubusercontent.com/40857994/92187924-785fa900-ee9e-11ea-9405-bd928fbdc354.jpg)
+-----------
+### 40) СОВЕРШЕННО НОВЫЙ ЗВЕРЬ / BNA
+![39873t_2x](https://user-images.githubusercontent.com/40857994/92187952-8f060000-ee9e-11ea-8e3f-fb540c349229.jpg)
+![6bd2e436342dcc51023fa820a1f7911c42da3bef](https://user-images.githubusercontent.com/40857994/92187979-9e854900-ee9e-11ea-9b54-799c11a7dcef.jpg)
+![0cc708adbf1f](https://user-images.githubusercontent.com/40857994/92188010-b0ff8280-ee9e-11ea-89f1-db149de5d3f8.jpg)
+-----------
+### 41) НЕПРИЗНАННЫЙ ШКОЛОЙ ВЛАДЫКА ДЕМОНОВ / MAOU GAKUIN NO FUTEKIGOUSHA
+![EbsgPqSX0AIxdHj](https://user-images.githubusercontent.com/40857994/92188052-d2606e80-ee9e-11ea-898c-3784aef740b7.jpg)
+![159450149690e80e6b056add7296e3338bc7488c2bfc8a4791](https://user-images.githubusercontent.com/40857994/92188062-dc826d00-ee9e-11ea-8c08-80a1bdd3cd07.jpg)
+![1596309807c75af4517b1151ed788cf85ea31eed71299d6cf6](https://user-images.githubusercontent.com/40857994/92188078-e7d59880-ee9e-11ea-8f7d-467e3451ba0a.jpg)
+-----------
+### 42) ДЕВУШКА В АРЕНДУ / KANOJO, OKARISHIMASU
+![portada-kanojo-okarishimasu](https://user-images.githubusercontent.com/40857994/92188104-050a6700-ee9f-11ea-8628-eaba40f0d3c1.jpg)
+![2 mp4](https://user-images.githubusercontent.com/40857994/92188117-0dfb3880-ee9f-11ea-8ec5-e0dbdb0c60fa.jpg)
+![EdJ7uNYXkAAJTPt](https://user-images.githubusercontent.com/40857994/92188150-24a18f80-ee9f-11ea-84a7-6a4dce56e63b.jpg)
+-----------
+### 43) МАГ-ОБМАНЩИК ИЗ ДРУГОГО МИРА / ISEKAI CHEAT MAGICIAN
+![xywBp4Jm1UlRjGbCNBdkOwbfoaU](https://user-images.githubusercontent.com/40857994/92188225-5a467880-ee9f-11ea-853f-3f03ef4f5780.jpg)
+![maxresdefault (10)](https://user-images.githubusercontent.com/40857994/92188238-63374a00-ee9f-11ea-9019-b64f5783ee82.jpg)
+-----------
+### 44) ПРИСОЕДИНЯЙТЕСЬ К СТАЕ! АКАДЕМИЯ СЭТОН / MURENASE! SETON GAKUEN
+![EPXzGp5XkAIev20](https://user-images.githubusercontent.com/40857994/92188274-7f3aeb80-ee9f-11ea-9bdc-455bdd80e263.jpg)
+![snapshot_00 49_2020 01 06_19 52 46](https://user-images.githubusercontent.com/40857994/92188283-88c45380-ee9f-11ea-8da2-f3cffa6fa9c5.jpg)
+![1582056579_7](https://user-images.githubusercontent.com/40857994/92188315-9da0e700-ee9f-11ea-9cdb-429c0be093d2.jpg)
+-----------
+### 45) СВЯЗЬ ПРИНЦЕСС: ПОВТОРНОЕ ПОГРУЖЕНИЕ / PRINCESS CONNECT! RE:DIVE
+![40677t_2x](https://user-images.githubusercontent.com/40857994/92188381-cd4fef00-ee9f-11ea-874b-10d2a2b5aa3c.jpg)
+![iF2tTAx6UXFTygQnc8F2Qs2cpG6](https://user-images.githubusercontent.com/40857994/92188394-d640c080-ee9f-11ea-8b6c-c2208b82bfc3.jpg)
+![1585910814073](https://user-images.githubusercontent.com/40857994/92188439-ec4e8100-ee9f-11ea-9585-0fdac194ef67.jpg)
+-----------
+### 46) АНГЕЛ КРОВОПРОЛИТИЯ / SATSURIKU NO TENSHI
+![7c790c7626a5596741b8ebc1d112d55a](https://user-images.githubusercontent.com/40857994/92188475-07b98c00-eea0-11ea-9ab0-065f17411cef.jpg)
+![Anime-Angel-krovoprolitiya-2-sezon-o-date-vyhoda](https://user-images.githubusercontent.com/40857994/92188522-2cadff00-eea0-11ea-88ee-e077f553053d.jpg)
+-----------
+### 47) ИД: ВТОРЖЕНИЕ / ID:INVADED
+![main_2x](https://user-images.githubusercontent.com/40857994/92188595-5b2bda00-eea0-11ea-8c99-cd8a9aa42ffc.jpg)
+![iedyYuiIVjFcjPyeosySTJu8QUb](https://user-images.githubusercontent.com/40857994/92188607-654dd880-eea0-11ea-8534-6220da5db7d8.jpg)
+![13](https://user-images.githubusercontent.com/40857994/92188625-74cd2180-eea0-11ea-9dee-fca1288a7f49.jpg)
 -----------
