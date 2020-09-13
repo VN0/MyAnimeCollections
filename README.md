@@ -228,3 +228,16 @@
 ![iedyYuiIVjFcjPyeosySTJu8QUb](https://user-images.githubusercontent.com/40857994/92188607-654dd880-eea0-11ea-8534-6220da5db7d8.jpg)
 ![13](https://user-images.githubusercontent.com/40857994/92188625-74cd2180-eea0-11ea-9dee-fca1288a7f49.jpg)
 -----------
+### 48) КОШЕЧКА ИЗ САКУРАСО / SAKURASOU NO PET NA KANOJO
+![5461347-sakurasou-no-pet-na-kanojo-wallpapers](https://user-images.githubusercontent.com/40857994/93016453-92b72680-f604-11ea-9c59-f4acb91c3838.jpg)
+![1577137371_29](https://user-images.githubusercontent.com/40857994/93016477-d27e0e00-f604-11ea-924d-a734bb034887.jpg)
+-----------
+### 49) МИЛЫЙ ДОМ ЧИ / CHI'S SWEET HOME
+![__4](https://user-images.githubusercontent.com/40857994/93016500-0b1de780-f605-11ea-8cc7-28d2646f1055.jpg)
+![629ce652f299a5df42f6157e068c7e14--chis-sweet-home-cat-drawing](https://user-images.githubusercontent.com/40857994/93016531-3ef90d00-f605-11ea-8e7f-024f84a86af0.jpg)
+-----------
+### 50) ПРОСТО ПОТОМУ ЧТО! / JUST BECAUSE!
+![1 (1)](https://user-images.githubusercontent.com/40857994/93016542-5fc16280-f605-11ea-9cbe-28041684a02d.jpg)
+![justbecause_31](https://user-images.githubusercontent.com/40857994/93016545-6c45bb00-f605-11ea-8f40-905a944b2cfc.jpg)
+![justbecause_2](https://user-images.githubusercontent.com/40857994/93016550-78317d00-f605-11ea-9af7-7f92349b43dd.jpg)
+-----------
