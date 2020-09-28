@@ -241,3 +241,7 @@
 ![justbecause_31](https://user-images.githubusercontent.com/40857994/93016545-6c45bb00-f605-11ea-8f40-905a944b2cfc.jpg)
 ![justbecause_2](https://user-images.githubusercontent.com/40857994/93016550-78317d00-f605-11ea-9af7-7f92349b43dd.jpg)
 -----------
+### 51) БОГАТЫЙ ДЕТЕКТИВ. БАЛАНС НЕОГРАНИЧЕН / FUGOU KEIJI BALANCE: UNLIMITED
+![45345](https://user-images.githubusercontent.com/40857994/94419383-068d2d80-01c6-11eb-84be-c95c0c881cfc.jpg)
+![4a4e121e8e3f0e272c7dff5f00275d86](https://user-images.githubusercontent.com/40857994/94419429-1ad12a80-01c6-11eb-96b1-b8f087a5c802.jpg)
+-----------
