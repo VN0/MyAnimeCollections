@@ -258,6 +258,3 @@
 ![62d1af6660b5f8d138767c78bb305825ca7d3707](https://user-images.githubusercontent.com/40857994/94421272-ac419c00-01c8-11eb-8213-5c1739bb457a.jpg)
 ![Команда](https://user-images.githubusercontent.com/40857994/94421322-b9f72180-01c8-11eb-9608-58165ad2278a.jpg)
 -----------
-### 55) МАГ-ОБМАНЩИК ИЗ ДРУГОГО МИРА / ISEKAI CHEAT MAGICIAN
-
------------
