@@ -245,3 +245,19 @@
 ![45345](https://user-images.githubusercontent.com/40857994/94419383-068d2d80-01c6-11eb-84be-c95c0c881cfc.jpg)
 ![4a4e121e8e3f0e272c7dff5f00275d86](https://user-images.githubusercontent.com/40857994/94419429-1ad12a80-01c6-11eb-96b1-b8f087a5c802.jpg)
 -----------
+### 52) ГЛЕЙПНИР / GLEIPNIR
+![Gleipnir full 2924406](https://user-images.githubusercontent.com/40857994/94420737-ed857c00-01c7-11eb-9e6b-5fc54cfe242c.jpg)
+![maxresdefault (11)](https://user-images.githubusercontent.com/40857994/94420777-faa26b00-01c7-11eb-9913-da132066a613.jpg)
+![EZQQqCaWoAAO6Gc](https://user-images.githubusercontent.com/40857994/94420805-07bf5a00-01c8-11eb-9d94-a724ca05d342.jpg)
+-----------
+### 53) МАГИЧЕСКИЙ ОКРУГ АБЭНОБАСИ / ABENOBASHI MAGICAL SHOPPING DISTRICT
+![1584354559_p-magicheskii-okrug-abenobasi-abenobashi-ma-1](https://user-images.githubusercontent.com/40857994/94421042-553bc700-01c8-11eb-97fc-9fc77d213985.jpg)
+![6506743254dff68fe6d37acdfce5419e43f92513](https://user-images.githubusercontent.com/40857994/94421124-73a1c280-01c8-11eb-92f4-7026d96a6d39.jpg)
+-----------
+### 54) ПСИХОПАСПОРТ / PSYCHO-PASS
+![62d1af6660b5f8d138767c78bb305825ca7d3707](https://user-images.githubusercontent.com/40857994/94421272-ac419c00-01c8-11eb-8213-5c1739bb457a.jpg)
+![Команда](https://user-images.githubusercontent.com/40857994/94421322-b9f72180-01c8-11eb-9608-58165ad2278a.jpg)
+-----------
+### 55) МАГ-ОБМАНЩИК ИЗ ДРУГОГО МИРА / ISEKAI CHEAT MAGICIAN
+
+-----------
