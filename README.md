@@ -56,7 +56,6 @@
 -----------
 ### 12) ДНЕВНИК БУДУЩЕГО / MIRAI NIKKI
 ![Mirai Nikki full 1076365](https://user-images.githubusercontent.com/40857994/92110341-e3bd6280-ee2d-11ea-85be-ad1e467dce4f.jpg)
-![tomswallpapers com-52877](https://user-images.githubusercontent.com/40857994/92110039-6db8fb80-ee2d-11ea-93da-b4b4f8a743b8.jpg)
 ![mirainikki_7](https://user-images.githubusercontent.com/40857994/92110123-92ad6e80-ee2d-11ea-9359-ff868fc237fc.jpg)
 -----------
 ### 13) СКУЧНЫЙ МИР, В КОТОРОМ НЕ СУЩЕСТВУЕТ САМОЙ КОНЦЕПЦИИ ПОХАБНЫХ ШУТОК / SHIMONETA TO IU GAINEN GA SONZAI SHINAI TAIKUTSU NA SEKAI
