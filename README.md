@@ -258,3 +258,8 @@
 ![62d1af6660b5f8d138767c78bb305825ca7d3707](https://user-images.githubusercontent.com/40857994/94421272-ac419c00-01c8-11eb-8213-5c1739bb457a.jpg)
 ![Команда](https://user-images.githubusercontent.com/40857994/94421322-b9f72180-01c8-11eb-9608-58165ad2278a.jpg)
 -----------
+### 55) УБИЙЦА ГОБЛИНОВ / GOBLIN SLAYER
+![1VaILduqlSSgwYhoVkEkQorpWw2](https://user-images.githubusercontent.com/40857994/95006149-75dea380-0644-11eb-906c-e94c35b468c6.jpg)
+![714854](https://user-images.githubusercontent.com/40857994/95006156-99095300-0644-11eb-9ac4-0713c4c13319.jpg)
+![Довольные](https://user-images.githubusercontent.com/40857994/95006166-a7f00580-0644-11eb-954c-cd918fa29c6b.jpg)
+-----------
