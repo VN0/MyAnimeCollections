@@ -34,7 +34,7 @@
 ![bokudakegainaimachi_3](https://user-images.githubusercontent.com/40857994/92112397-0d2bbd80-ee31-11ea-87db-0b3dcf91d57a.jpg)
 ![boku-dake-ga-inai-machi-06-27](https://user-images.githubusercontent.com/40857994/92112468-29c7f580-ee31-11ea-867b-3b97a17c9726.jpg)
 -----------
-### 8) ПРИЗРАЧНЫЙ МИР МИРИАДЫ ЦВЕТОВ / MUSAIGEN NO PHANTOM WORLD - [ANIDUB](ПРИЗРАЧНЫЙ МИР МИРИАДЫ ЦВЕТОПРИЗРАЧНЫЙ МИР МИРИАДЫ ЦВЕТОПРИЗРАЧНЫЙ МИР МИРИАДЫ ЦВЕТОПРИЗРАЧНЫЙ МИР МИРИАДЫ ЦВЕТО), [JUT.SU](https://jut.su/musaigen-no-phantom-world/)
+### 8) ПРИЗРАЧНЫЙ МИР МИРИАДЫ ЦВЕТОВ / MUSAIGEN NO PHANTOM WORLD - [ANIDUB](https://online.anidub.com/anime/full/9582-prizrachnyy-mir-miriady-cvetov-musaigen-no-phantom-world-01-iz-12.html), [JUT.SU](https://jut.su/musaigen-no-phantom-world/)
 ![musaigen-no-phantom-world-anime-seifuku-japanese-bishojo-m-1](https://user-images.githubusercontent.com/40857994/92112527-46642d80-ee31-11ea-83e5-caee8471a2f9.jpg)
 ![da14a78a7381d83ee90a3b56f26a7a12](https://user-images.githubusercontent.com/40857994/92112566-53811c80-ee31-11ea-87bb-434a6cd19fbc.png)
 ![It+looks+like+shes+wearing+a+diaper+_e39bfbe87b769e6a693498ba74f4d2e1](https://user-images.githubusercontent.com/40857994/92112613-68f64680-ee31-11ea-9928-ea83658a11a6.jpg)
