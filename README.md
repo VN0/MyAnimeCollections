@@ -1,5 +1,5 @@
-# MyAnimeCollections
-**These are my anime collections viewed by me**
+# Мои анимешки
+
 ### 1) ИСТОРИИ ЧУДОВИЩ / BAKEMONOGATARI - [ANIDUB](https://online.anidub.com/anime/full/6326-monstrasskazy-istorii-chudovisch-bakemonogatari-01-15-iz-152009bdrip1080p.html), [JUT.SU](https://jut.su/monogatari-series/)
 ![632406](https://user-images.githubusercontent.com/40857994/92110619-59293300-ee2e-11ea-8bdd-37dfd53f8265.jpg)
 ![screen_1540285036459](https://user-images.githubusercontent.com/40857994/92110662-68a87c00-ee2e-11ea-9adc-0d475407cfdc.jpg)
