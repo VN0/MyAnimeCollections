@@ -266,3 +266,7 @@
 ![kiminonawa_4](https://user-images.githubusercontent.com/40857994/96358740-f70e5e00-114d-11eb-89fd-bfb90a67eb1f.jpg)
 ![unnamed](https://user-images.githubusercontent.com/40857994/96358747-10afa580-114e-11eb-9664-d703175f2b61.jpg)
 -----------
+### 57) ЗАГАДОЧНЫЕ ДЕЛА ЮВЕЛИРА РИЧАРДА / HOUSEKISHOU RICHARD-SHI NO NAZO KANTEI - [ANIDUB](https://anime.anidub.life/anime/full/11154-zagadochnye-dela-yuvelira-richarda-housekishou-richard-shi-no-nazo-kantei-01-iz-12.html), [JUT.SU](https://jut.su/richard-shi/)
+![222236454654](https://user-images.githubusercontent.com/40857994/96707145-d4dd4000-13da-11eb-849f-7b6095e41249.jpg)
+![1583930489_bc3c87afb5b8f009ce726e7cc9b54e70cbd672af](https://user-images.githubusercontent.com/40857994/96707182-e1fa2f00-13da-11eb-9e93-22d143270539.jpg)
+-----------
