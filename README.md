@@ -270,3 +270,16 @@
 ![222236454654](https://user-images.githubusercontent.com/40857994/96707145-d4dd4000-13da-11eb-849f-7b6095e41249.jpg)
 ![1583930489_bc3c87afb5b8f009ce726e7cc9b54e70cbd672af](https://user-images.githubusercontent.com/40857994/96707182-e1fa2f00-13da-11eb-9e93-22d143270539.jpg)
 -----------
+### 58) МАГИЧЕСКАЯ БИТВА / JUJUTSU KAISEN - [ANIDUB](https://anime.anidub.life/anime/anime_ongoing/11289-magicheskaja-bitva-jujutsu-kaisen.html), [JUT.SU](https://jut.su/jujutsu-kaisen/)
+![be7d4f41a67f31dbd17c5ab854d45730](https://user-images.githubusercontent.com/40857994/98193080-14be2e80-1f68-11eb-97d3-16f20a897521.jpg)
+![maxresdefault](https://user-images.githubusercontent.com/40857994/98193083-1556c500-1f68-11eb-95ca-49a1eb018840.jpg)
+-----------
+### 59) СВОДКИ БЮРО РАССЛЕДОВАНИЙ / MIN DIAO JU YI WEN LU - [ANIDUB](https://anime.anidub.life/anime/anime_ongoing/11334-svodki-bjuro-rassledovanij.html)
+![4 mp4](https://user-images.githubusercontent.com/40857994/98193209-5fd84180-1f68-11eb-8705-49fd637bd772.jpg)
+![5 mp4](https://user-images.githubusercontent.com/40857994/98193246-71214e00-1f68-11eb-825e-1151df71fc99.jpg)
+-----------
+### 60) Тайная жизнь пингвинов / PENGUIN HIGHWAY
+![550975](https://user-images.githubusercontent.com/40857994/98193531-2bb15080-1f69-11eb-9400-cd52889f1ecd.jpg)
+![33348t_2x](https://user-images.githubusercontent.com/40857994/98193532-2c49e700-1f69-11eb-8ee3-c3336011d30f.jpg)
+![penguinhighway_27](https://user-images.githubusercontent.com/40857994/98193533-2ce27d80-1f69-11eb-9eb1-092d960dc48e.jpg)
+-----------
