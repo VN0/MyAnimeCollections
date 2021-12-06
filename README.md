@@ -284,4 +284,8 @@
 ![penguinhighway_27](https://user-images.githubusercontent.com/40857994/98193533-2ce27d80-1f69-11eb-9eb1-092d960dc48e.jpg)
 -----------
 ### 61) Маг-целитель: Новый старт / KAIFUKU JUTSUSHI NO YARINAOSHI
+![256-1](https://user-images.githubusercontent.com/37180264/144833357-9f7072ff-8dfa-46f9-8b3c-af9e6c2a49f0.jpg)
+![preview](https://user-images.githubusercontent.com/37180264/144833373-1ce51eba-c5dc-4294-8e39-2acb5e19f359.jpg)
+![data-vyhoda-vsekh-serij-v-rossii-mag-celitel-novyj-start-2-sezon-2022](https://user-images.githubusercontent.com/37180264/144833382-3d0b1289-cabb-40fd-80fc-9c321b224422.jpg)
+### 62) Реинкарнация безработного / MUSHOKU TENSEI: ISEKAI ITTARA HONKI DASU
 
