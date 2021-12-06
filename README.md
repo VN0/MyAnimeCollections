@@ -283,3 +283,5 @@
 ![33348t_2x](https://user-images.githubusercontent.com/40857994/98193532-2c49e700-1f69-11eb-8ee3-c3336011d30f.jpg)
 ![penguinhighway_27](https://user-images.githubusercontent.com/40857994/98193533-2ce27d80-1f69-11eb-9eb1-092d960dc48e.jpg)
 -----------
+### 61) Маг-целитель: Новый старт / KAIFUKU JUTSUSHI NO YARINAOSHI
+
